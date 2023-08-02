@@ -1,1 +1,0 @@
-App semplice e perfetta!
